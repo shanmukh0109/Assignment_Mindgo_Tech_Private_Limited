@@ -1,0 +1,2 @@
+# Assignment_Mindgo_Tech_Private_Limited
+Assignment by chintamaneni shanmukh chowdary
